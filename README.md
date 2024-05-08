@@ -1,4 +1,4 @@
-### Hi there 👋 boas vindas ao meu perfil 💙
+###     olá 👋 boas vindas ao meu perfil 💙
 
 meu nome é maria eduarda 🌸
 - Estou estudando na [Alura](https://www.alura.com.br)
