@@ -9,6 +9,4 @@ meu nome é maria eduarda 🌸
 
 00001106061330sṕ@al.educacao.sp.gov.br
 
-@dudah.sllv
-
-![descrição do GIF](link GIF do Tenor)
+**@dudah.sllv**
